@@ -1,2 +1,2 @@
-# sous video recipes
+# sous vide recipes
 https://recipes.anovaculinary.com/

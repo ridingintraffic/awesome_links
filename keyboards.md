@@ -23,3 +23,4 @@ this is just the list of things that I like and that have been good recommendati
 tape mod - side rail tape
 gaffers tape mod - bottom out tape
 lube krytox 205
+![[32132A49-564E-4F82-8FCE-471EB1208BB1.jpeg]]
